@@ -35,24 +35,65 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The great mystery of godliness Jesus Christ our Lord God and man, and man with God; one in Jesus Chr
+
 #####Body#####
 
-1. §. 1.
+1. THE
+MYSTICALL
+Union of CHRIST and
+his CHURCH;
+Grace, Mercy and Peace with all
+ſpirituall and ſpeciall bleſſings of
+Heaven be multiplied upon you and in
+you, by the bleſſed Spirit from God
+the Father through CHRIST
+JESUS our Lord.
+Amen.
 
-1. §. 2.
+    _ PART .I.
 
-1. §. 3.
+      * §. 1.
 
-1. §. 4.
+      * §. 2.
 
-1. §. 5.
+      * §. 3.
 
-1. §. 6.
+    _ PART .II.
 
-1. §. 7.
+      * §. 4.
 
-1. §. 8.
+      * §. 5.
+
+      * §. 6.
+
+      * §. 7.
+
+      * §. 8.
+
+1. The Myſtery of JESUS
+CHRIST, Emmanuel
+GOD with us.
+
+    _ The Myſtery of Incarnation.
+
+    _ The Myſtery of Reconciliation.
+
+    _ The Myſtery of Regeneration.
+
+    _ The Mystery of mysticall Ʋnion.
+
+    _ The Myſtery of the Goſpel.
+
+    _ The Mystery of the firſt Reſurrection.
+
+    _ The Mystery of the ſecond Reſurrection.
+The firſt Myſtery was God
+with us,The laſt Myſtery ſhall bee,
+we with God,And God
+All in All.
+1 Cor.
+1. A plaine tryall by the Word of God of Mans ſpirituall estate
+whether he be in Christ Jeſus, or no.
 
 **Types of content**
 
